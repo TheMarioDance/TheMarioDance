@@ -11,7 +11,7 @@ I'm not a software engineer, but I'm really interested in coding to help with my
 
 
 On the personal side, I'm a big fan of Formula 1 and enjoy watching football. These sports provide a welcome break from my professional interests 🏎️.
-On a personal note, I'm a huge Marvel fan and also very into Star Wars and anime. I'm also really into tech, always excited to explore the latest gadgets and innovations 🤓.
+I'm a huge Marvel fan and also very into Star Wars and anime. I'm also really into tech, always excited to explore the latest gadgets and innovations 🤓.
 
 ### My Contribution
 
