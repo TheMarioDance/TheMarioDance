@@ -1,4 +1,4 @@
-# Juan Fernando Contreras García
+# Fernando Contreras
 
 ## S'up
 
